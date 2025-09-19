@@ -1,0 +1,1 @@
+# Totem-de-triagem-pr--clinica
